@@ -13,7 +13,7 @@
 ![Sorria](https://www.azquotes.com/vangogh-image-quotes/45/64/Quotation-Charlie-Chaplin-You-ll-find-that-life-is-still-worthwhile-if-you-45-64-95.jpg)
 
 **Autora**: Aline de Castro Oliveira
-* Analista de Sistemas, DEV e projetista.
+* Analista de Sistemas, Engenheira de Software, DEV e projetista.
 * Professora de professores, espaços educativos e universidades na área de Educação
 * Empreendedora, ​Mentora em Educação na Pedagogia Waldorf, palestrante, consultora.
 * Pedagoga e Professora voluntária do Jardim de Infância e Ensino Fundamental.
