@@ -12,9 +12,6 @@
 
 ![Sorria](https://www.azquotes.com/vangogh-image-quotes/45/64/Quotation-Charlie-Chaplin-You-ll-find-that-life-is-still-worthwhile-if-you-45-64-95.jpg)
 
-
-Aqui você irá encontrar os exercícios, projetos e desafios de cursos e Bootcamps da DIO
-
 **Autora**: Aline de Castro Oliveira
 * Analista de Sistemas, DEV e projetista.
 * Professora de professores, espaços educativos e universidades.
