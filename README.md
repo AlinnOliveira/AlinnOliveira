@@ -25,7 +25,7 @@ Formada em Ciência da Computação com Especialização em Engenharia de Softwa
 Formada também em Pedagogia, Especialização em Psicomotricidade e Artes e 
 MBA - USP em Gestão Escolar com foco em Alfabetização na Pedagogia Waldorf.
 
-👀 Linkedin: [www.linkedin.com/in/alinecastrooliveira/](www.linkedin.com/in/alinecastrooliveira/)
+👀 Linkedin: ([www.linkedin.com/in/alinecastrooliveira/](https://www.linkedin.com/in/alinecastrooliveira/))
 
 👀 GitHub: [https://github.com/AlinnOliveira](https://github.com/AlinnOliveira)
 
