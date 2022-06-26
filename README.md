@@ -14,7 +14,7 @@
 
 **Autora**: Aline de Castro Oliveira
 * Analista de Sistemas, DEV e projetista.
-* Professora de professores, espaços educativos e universidades.
+* Professora de professores, espaços educativos e universidades na área de Educação
 * Empreendedora, ​Mentora em Educação na Pedagogia Waldorf, palestrante, consultora.
 * Pedagoga e Professora voluntária do Jardim de Infância e Ensino Fundamental.
 * Professora de Programação e TI para crianças e adolescentes.
