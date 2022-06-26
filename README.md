@@ -4,11 +4,11 @@
 
 * **“Insanidade é continuar fazendo sempre a mesma coisa e esperar resultados diferentes”**
 
-* **Uma pessoa que nunca cometeu erros nunca tentou algo novo.**
+* **"Uma pessoa que nunca cometeu erros nunca tentou algo novo."**
 
 🌱Charles Chapplin:
 
-**Estou sempre alegre. Essa é a melhor maneira de resolver os problemas da vida.**
+* **"Estou sempre alegre. Essa é a melhor maneira de resolver os problemas da vida."**
 
 ![Sorria](https://www.azquotes.com/vangogh-image-quotes/45/64/Quotation-Charlie-Chaplin-You-ll-find-that-life-is-still-worthwhile-if-you-45-64-95.jpg)
 
