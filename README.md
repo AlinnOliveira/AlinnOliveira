@@ -18,9 +18,11 @@
 * Empreendedora, ​Mentora em Educação na Pedagogia Waldorf, palestrante, consultora.
 * Pedagoga e Professora voluntária do Jardim de Infância e Ensino Fundamental.
 * Professora de Programação e TI para crianças e adolescentes.
-* Curiosa! Agora com o idioma Coreano
+* Terapeuta e estudante de terapias. Atuante como terapeuta de meus alunos e suas famílias.
+* Curiosa!
 
 Formada em Ciência da Computação com Especialização em Engenharia de Software. 
+Atuei em fábricas de software como dev, analista de requisitos e projeto.
 
 Formada também em Pedagogia, Especialização em Psicomotricidade e Artes e 
 MBA - USP em Gestão Escolar com foco em Alfabetização na Pedagogia Waldorf.
