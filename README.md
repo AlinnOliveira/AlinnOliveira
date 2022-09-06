@@ -39,4 +39,4 @@ MBA - USP em Gestão Escolar com foco em Alfabetização na Pedagogia Waldorf.
 
 👀 YouTube: [www.youtube.com/c/PedagogiaParaVida/](https://www.youtube.com/c/PedagogiaParaVida)
 
-![Você é um vencedor](https://1.bp.blogspot.com/-J2rbaeHOhuI/WxsfHIDGPfI/AAAAAAAAE8U/e4KUbX4Uv8MN6ic_9OgNFv-j0t8gFZvQwCLcBGAs/s1600/sol.jpg)
+
